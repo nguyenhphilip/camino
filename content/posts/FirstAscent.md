@@ -59,4 +59,4 @@ They’re two sides of the same coin, and I am standing on the precipice.
 
 ---
 
-## _[Next: Tea](https://caminodesantiago.netlify.com/posts/firstascent/)_
+## _[Next: Tea](https://caminodesantiago.netlify.com/posts/tea/)_
