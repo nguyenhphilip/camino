@@ -1,4 +1,4 @@
-baseURL = "http://example.org/"
+baseURL = "/"
 languageCode = "en-us"
 title = "Phil and El Camino de Santiago"
 theme = "elephants"
