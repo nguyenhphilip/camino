@@ -68,3 +68,7 @@ Later, I ran into him again.
 “I messaged my family about what just happened, and they couldn’t believe it.”
 
 ![](/../images/sea.jpg)
+
+---
+
+## _[Next: Journal Entries Day 22 - 24](https://caminodesantiago.netlify.com/posts/journal22-24/)_

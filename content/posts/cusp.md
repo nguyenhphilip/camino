@@ -27,3 +27,7 @@ After dinner, we went up a hill at the edge of town and laid in the grass for aw
 It was a moment I didn’t want to end. We were all high on life, drinking from the cusp of time and infinity, somewhere in the depths of a beautiful and wonderfully dark universe.
 
 ![](/../images/cusp2.jpg)
+
+---
+
+## _[Next: Sunsets and Soulmates](https://caminodesantiago.netlify.com/posts/suns-souls/)_

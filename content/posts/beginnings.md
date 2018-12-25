@@ -43,3 +43,7 @@ Silence.
 “Ok. So who’s first?”
 
 ![](/../images/begin.jpg)
+
+---
+
+## _[Next: First Ascent](https://caminodesantiago.netlify.com/posts/firstascent/)_

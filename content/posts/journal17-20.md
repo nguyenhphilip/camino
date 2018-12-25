@@ -51,7 +51,7 @@ The nuns ended the night with music. They played their guitar and sang songs in 
 Wondering how S is doing. Hope he’s feeling better.
 ## <center>...</center>
 
-September 25, 2017 - Day 19
+### September 25, 2017 - Day 19
 An observation: Every day that we wake and walk, the sun begins behind us, leaving us with only our shadow. This shadow represents our fears, insecurities, and struggles, the things we hesitate to look at in the eye; in essence, our inner demons. We wake each day to confront these demons as we walk towards Santiago. But we cannot get rid of them, because then we must get rid of the sun; no sun and the shadow becomes an engulfing abyss. Rather, we must fully accept the shadow, see it as it is, and nourish it with love. It will always be there so long as we are walk towards our Santiagos, so long as we walk with life, so long as we are trying to honor the inner light within each of us. Without light, life cannot exist, and life cannot exist without shadow. But that’s ok. Because at the end of the day, we are walking towards the sun, towards Santiago, and our shadow is now behind us.
 ## <center>...</center>
 
@@ -74,7 +74,7 @@ She showed me some pictures of her family, and I showed her mine.
 It was a delightfully nonsensical and ridiculous time.
 ## <center>...</center>
 
-September 26, 2017 - Day 20
+### September 26, 2017 - Day 20
 How can you see the magic if you don' t believe in it?
 It’s all around, in the trees, the grass, the flowers, the birdsong.
 I see it in the sun, I taste it in the wind, I feel it with my smile.
@@ -91,3 +91,7 @@ I miss M and her present presence.
 Pauline. She’s here! In my room! She and her French friend, Morgan, are going to start walking tomorrow at 4:30am. They want to see some shooting stars and have invited me to tag along. I was initially hesitant but have agreed to go. Not sure what I've dragged myself into.
 
 ![](/../images/journal1.jpg)
+
+---
+
+## _[Next: A Sea of Stars](https://caminodesantiago.netlify.com/posts/stars/)_

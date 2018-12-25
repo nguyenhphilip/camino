@@ -87,3 +87,6 @@ No words could express the gratitude I felt at that moment. I was thankful that 
 
 “I don't know, but I believe that everything happens for a reason," said M.
 
+---
+
+## _[Next: Goodbye](https://caminodesantiago.netlify.com/posts/goodbye/)_

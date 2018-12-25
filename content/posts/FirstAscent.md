@@ -56,3 +56,7 @@ Nervousness. I take a deep breath.
 Excitement. I let it go, slowly.
 
 They’re two sides of the same coin, and I am standing on the precipice.
+
+---
+
+## _[Next: Tea](https://caminodesantiago.netlify.com/posts/firstascent/)_

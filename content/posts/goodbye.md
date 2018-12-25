@@ -54,3 +54,7 @@ To her, my insecurities, fears and struggles were valid parts of me, and yet, in
 When she left, I didn’t feel sad -- in fact, oddly, I felt happy. Not because she was gone, but because we had both grown. Because she had found what she was searching for. And because I was able to let go of my soulmate, or so I believed.
 
 ![](/../images/goodbye.jpg)
+
+---
+
+## _[Next: Gone](https://caminodesantiago.netlify.com/posts/gone/)_

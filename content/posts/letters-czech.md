@@ -231,3 +231,7 @@ I wrote these letters to my friend, S, from the Czech Republic. Including them b
 >Wish you the greatest walk ever though I am not gonna see your eyes when you get there.. but I'll see them another time.
 
 >–S
+
+---
+
+## _[Next: Santiago](https://caminodesantiago.netlify.com/posts/santiago/)_

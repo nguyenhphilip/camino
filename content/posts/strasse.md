@@ -69,3 +69,7 @@ To end the night, Matilde and Franca were asked to sing a song. They decided to 
 >May God hold you in the palm of his hand<br>
 
 ![](/../images/strasse2.jpg)
+
+---
+
+## _[Next: The Cusp of Time and Infinity](https://caminodesantiago.netlify.com/posts/cusp/)_

@@ -39,3 +39,7 @@ p {
 .blog-post {
     padding-left: 1em;
 }
+
+img {
+  width: 95%;
+}

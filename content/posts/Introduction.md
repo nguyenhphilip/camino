@@ -155,3 +155,7 @@ Are we ever truly ready for the future? I don’t think so. But that shouldn’t
 I boarded the plane, unsure of what was to come. In the air, I took one last look at the Boston skyline. Clouds pressed against the horizon. A brilliant swath of pinkish-orange hues left the sky ablaze.
 
 Behind me stood home. Ahead, answers amid a foreign landscape.
+
+---
+
+## _[Next: Beginnings](https://caminodesantiago.netlify.com/posts/beginnings/)_

@@ -85,3 +85,7 @@ Karaoke!
 The journey would not have been the same without them and the many others with whom I do not have pictures with.
 
 But there was still one story left to close: M.
+
+---
+
+## _[Next: The Final Goodbye](https://caminodesantiago.netlify.com/posts/final-goodbye/)_

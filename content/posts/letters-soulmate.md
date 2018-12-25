@@ -9,13 +9,13 @@ These are the letters M and I wrote to each other after she was gone. They might
 ## <center>...</center>
 
 ### September 21, 2017
->I just realized I did not give you my email. Safe travels! Thank >you for everything.
+>I just realized I did not give you my email. Safe travels! Thank you for everything.
 >–Phil
 
 ## <center>...</center>
 
 ### September 23, 2017
->Yesterday, as I walked away from Burgos, it clicked: you were >gone.
+>Yesterday, as I walked away from Burgos, it clicked: you were gone.
 
 >When I had reached my destination, I went to the church and sat in silence for awhile – I even prayed! My mind ran through all of our moments and memories, like a broken record player… I was drowning under the weight of an emotional tsunami.
 
@@ -205,3 +205,7 @@ These are the letters M and I wrote to each other after she was gone. They might
 
 >I send you a big hug, and cannot wait to make it a real one…
 >–M
+
+---
+
+## _[Next: Letters Worth Czeching Out](https://caminodesantiago.netlify.com/posts/letters-czech/)_

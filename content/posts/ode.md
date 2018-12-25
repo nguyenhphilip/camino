@@ -48,3 +48,7 @@ Dare I do it, dare I eclipse the sun?<br>
 >Closer and closer to Santiago.
 
 ![](/../images/ode.jpg)
+
+---
+
+## _[Next: Journal Entries Day 17 - 20](https://caminodesantiago.netlify.com/posts/journal17-20/)_

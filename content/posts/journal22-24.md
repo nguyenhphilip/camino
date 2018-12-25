@@ -84,3 +84,7 @@ Once we were finished, the hospitalero invited everyone to have chupitos – sho
 Terra: “I thought he hated us. Now he’s buying everyone shots."
 
 ![](/../images/shots.jpg)
+
+---
+
+## _[Next: The Iron Cross](https://caminodesantiago.netlify.com/posts/ironcross/)_

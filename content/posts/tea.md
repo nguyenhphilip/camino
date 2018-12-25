@@ -66,3 +66,7 @@ I never grew tired of retelling my stories to different people. Each retelling r
 Franca and Matilde returned from the bar, and we went to M's table. Later, we enjoyed a community dinner with the other pilgrims and went to bed.
 
 ![](/../images/tea.jpg)
+
+---
+
+## _[Next: Möge die Straße](https://caminodesantiago.netlify.com/posts/strasse/)_

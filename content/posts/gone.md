@@ -101,3 +101,7 @@ A latch is released. Gratitude, clarity, stillness, tears.
 The sky is poppy red, M’s favorite flower and color, a deep and radiant crimson.
 
 ![](/../images/gone.jpg)
+
+---
+
+## _[Next: An Ode to the Road](https://caminodesantiago.netlify.com/posts/ode/)_
