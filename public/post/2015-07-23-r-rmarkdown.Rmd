@@ -1,0 +1,31 @@
+---
+title: "El Camino de Santiago"
+description: "A story of my journey across the Camino de Santiago"
+date: 2017-12-27T06:09:43-04:00
+draft: false
+tags: ["travel", "spiritual", "love", "self discovery"]
+categories: "Camino de Santiago"
+slug: el-camino-de-santiago
+---
+
+Hi. This is the story of my journey across the Camino de Santiago. I've done my best to be as accurate as possible to the description of people, events, happenings, dialogues, and places. This is the first time I've ever written anything so extensive, and personal. I do not claim to be skilled enough to capture the entirety of my experience, so you'll have to forgive me if you finish and have any lingering questions – I'm always open to talking about the experience. Enjoy! If you've already read the Introduction, start at Beginnings. The story builds upon itself, so it will make the most sense if you start at Introduction.
+
+0. [Introduction](https://philontheweb.com/posts/camino/introduction/)
+1. [Beginnings](https://philontheweb.com/posts/camino/beginnings/)
+2. [First Ascent](https://philontheweb.com/posts/camino/firstascent/)
+3. [Tea](https://philontheweb.com/posts/camino/tea/)
+4. [Möge die Straße](https://philontheweb.com/posts/camino/strasse/)
+5. [The Cusp of Time and Infinity](https://philontheweb.com/posts/camino/cusp/)
+6. [Sunsets and Soulmates](https://philontheweb.com/posts/camino/suns-souls/)
+7. [Goodbye](https://philontheweb.com/posts/camino/goodbye/)
+8. [Gone](https://philontheweb.com/posts/camino/gone/)
+9. [An Ode to the Road](https://philontheweb.com/posts/camino/ode/)
+10. [Journal Entries, Day 17 - 20](https://philontheweb.com/posts/camino/journal17-20/)
+11. [A Sea of Stars](https://philontheweb.com/posts/camino/stars/)
+12. [Journal Entries, Day 22 - 24](https://philontheweb.com/posts/camino/journal22-24/)
+13. [The Iron Cross](https://philontheweb.com/posts/camino/ironcross/)
+14. [Letters to a Camino Soulmate](https://philontheweb.com/posts/camino/letters-soulmate/)
+15. [Letters Worth Czeching Out](https://philontheweb.com/posts/camino/letters-czech/)
+16. [Santiago](https://philontheweb.com/posts/camino/santiago/)
+17. [The Final Goodbye](https://philontheweb.com/posts/camino/final-goodbye/)
+18. [Home](https://philontheweb.com/posts/camino/home/)

@@ -1,0 +1,24 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes" ?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom">
+  <channel>
+    <title>Love on Phil and El Camino de Santiago</title>
+    <link>/tags/love/</link>
+    <description>Recent content in Love on Phil and El Camino de Santiago</description>
+    <generator>Hugo -- gohugo.io</generator>
+    <language>en-us</language>
+    <lastBuildDate>Wed, 27 Dec 2017 06:09:43 -0400</lastBuildDate>
+    
+	<atom:link href="/tags/love/index.xml" rel="self" type="application/rss+xml" />
+    
+    
+    <item>
+      <title>El Camino de Santiago</title>
+      <link>/post/el-camino-de-santiago/</link>
+      <pubDate>Wed, 27 Dec 2017 06:09:43 -0400</pubDate>
+      
+      <guid>/post/el-camino-de-santiago/</guid>
+      <description>Hi. This is the story of my journey across the Camino de Santiago. I’ve done my best to be as accurate as possible to the description of people, events, happenings, dialogues, and places. This is the first time I’ve ever written anything so extensive, and personal. I do not claim to be skilled enough to capture the entirety of my experience, so you’ll have to forgive me if you finish and have any lingering questions – I’m always open to talking about the experience.</description>
+    </item>
+    
+  </channel>
+</rss>

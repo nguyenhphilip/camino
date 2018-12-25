@@ -1,0 +1,7 @@
+baseURL = "http://example.org/"
+languageCode = "en-us"
+title = "Phil and El Camino de Santiago"
+theme = "elephants"
+
+[params]
+    sitename = "El Camino de Santiago: Table of Contents"
