@@ -60,17 +60,15 @@ Your love is so pure.
 
 You––”
 
-A tiny piece of glass is shattering into a thousand tinier pieces. Time sweeps them into the pan of reality. A naked thread remains.
+A tiny piece of glass is shattering into a thousand tinier pieces. Time sweeps them into the pan of reality. A naked thread remains. The voice of Leonard Cohen in the nearby distance:
 
-Your letters they all say that you're beside me now.
-Then why do I feel alone?
-I'm standing on a ledge and your fine spider web
-is fastening my ankle to a stone.
+> Your letters they all say that you're beside me now. <br>
+> Then why do I feel alone? <br>
+> I'm standing on a ledge and your fine spider web <br>
+> is fastening my ankle to a stone. <br>
 
-Now so long, Marianne, it's time that we began
-To laugh and cry and cry and laugh about it all again.
-
-She does not.
+> Now so long, Marianne, it's time that we began <br>
+> To laugh and cry and cry and laugh about it all again. <br>
 
 ## <center>...</center>
 
@@ -102,7 +100,7 @@ An engine whirs to life, and slowly, slowly, I am taken by the arms of an unknow
 
 >I remember the day when you told me that you had never felt love before. That was on day 4 of our Camino. I then made a promise to myself to show you how it feels. I don’t know if I have been successful. But what I believe is, what we had, that was love. It’s possible. It’s real. Hang onto it. Carry it with you. Give it to someone else who will love you back.
 
->Please don't blame yourself for the way I currently feel – I’ll be fine. I tell you this because you have been my best friend, you have taught me so much about life. Truly, I cannot fathom the depth of our relationship, and I cannot begin to express how thankful I am. I am tearing up as I write this, out of such joy and gratitude. This letter, I suppose, will mark the end of my Camino. It has taught me the final lesson I needed to learn. Love.
+>Please don't blame yourself for the way I currently feel – I’ll be fine. I tell you this because you have been my best friend, you have taught me so much about life. Truly, I cannot fathom the depth of our relationship, and I cannot begin to express how thankful I am. I am tearing up as I write this, out of such joy and gratitude. This letter, I suppose, will mark the end of my Camino. It has taught me the final lesson I needed to learn: what it means to love. <br>
 >-P
 
 ![](/../images/final.jpg)
