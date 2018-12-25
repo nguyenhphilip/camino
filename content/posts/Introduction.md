@@ -9,99 +9,91 @@ In May of 2017, while working in a Title I Elementary school in New Hampshire, I
 
 The main character, Amit, is unable to return home after the death of his estranged father. He wanders, lost and filled with pain and grief, and is led to the Camino de Santiago. There, he meets many travelers and pilgrims. Some are lost and searching for answers, others are running from their past, but all have a story to share. Along the month-long journey, he is faced with the big questions of life, causing him to grow in a new direction and way of being.
 
-Upon finishing the story, the seeds of the Camino were planted in my mind. I will walk the Camino one day. And perhaps by fate, just when I needed them to bloom, the seeds came to fruition 3 months later at a summer camp in Maine.
+Upon finishing the story, the seeds of the Camino were planted in my mind. "I will walk the Camino one day," I thought. And perhaps by fate, just when I needed them to bloom, the seeds came to fruition 3 months later at a summer camp in Maine.
 
 ## Summer Camp, Maine
 
-I had just finished my year of service with City Year, New Hampshire. The plan afterwards was to attend Boston University for a graduate program in Educational Leadership and Policy Studies, but it didn’t feel like a good fit for me, so I deferred. With little time for decisions and no alternatives in sight, I took a job as a camp counselor in Maine.
+I had just finished my year of service with City Year, New Hampshire. The plan afterwards was to attend Boston University for a graduate program in Educational Leadership and Policy Studies. Ultimately it didn’t feel like a good fit for me, so I rescinded my acceptance. With little time for decisions and no alternatives in sight, I took a job as a camp counselor in Maine.
 
-During the second week of camp, I applied for a job in Colorado, quite confident of my ability to secure the position. Needless to say, I was met with rejection, and it was then clear to me that I had no direction in my life. I applied to a graduate program because it seemed like the proper step to take, and I applied to a random job in Colorado because I yearned for a sense of security. What was I truly willing to work for? What did I actually want to do with my life? How did I want to live? These questions haunted me, beckoning for resolution.
+During the second week of camp, I applied for a job in Colorado, confident of my ability to secure the position. Needless to say, I was met with a rather dry rejection. It then become clear to me that I had no sense of direction in my life. I had applied to a graduate program because it seemed like the proper thing to do, and I applied to a random job in Colorado because I yearned for the security. What was I truly willing to work for? What did I actually want to do with my life? How did I want to live? These questions haunted me, beckoning for resolution.
 
-I turned to books for guidance––my usual coping strategy when stressed––and reread The Alchemist and When Breath Becomes Air. The Alchemist inspired a dreamy sense of possibility, while Breath instilled a demanding sense of urgency. But they resolved nothing. I needed concrete steps toward writing my own story.
+I turned to books for guidance––my usual coping strategy––and reread The Alchemist and When Breath Becomes Air. The Alchemist inspired a dreamy sense of possibility, while Breath instilled a demanding sense of urgency. But neither resolved my dilemma.
 
-Two weeks later, like a godsend, the idea of walking the Camino came to mind. The sensible me thought the idea was impulsive and irresponsible: what if I end up wasting my time? Was I only avoiding my problems? Was I simply running away from the demands of the world? Myself? Ultimately, my gut ignored these worries and made the decision for me: I went to the farmhouse (the only place with internet access at camp) and bought a one-way ticket to Europe.
+Two weeks later, like a godsend, the idea of walking the Camino came to mind. The sensible me thought the idea was impulsive and irresponsible: what if I end up wasting my time? Was I only avoiding my problems? Was I simply running away from the demands of the modern world? Myself? In the end, my gut ignored the voices and made the decision for me: I went to the farmhouse (the only place with internet access at camp) and bought a one-way ticket to Europe.
 
-A strange thing began to occur once my mind settled on the decision: life got better. Once I had finally committed to something – and conversely, had rejected the alternatives – I was able to get more out of life.Camp became fun, my relationships improved, my worries extinguished. I reveled in the interplay of Maine’s idyllic landscapes, the slow passage of time, and the high-pitched screams of happy campers.
+A strange thing began to occur once my mind had settled on the decision: life got better. Once I had finally committed to something – and conversely rejected the alternatives – life was pleasant again. Camp became a source of joy, my relationships improved, and my worries extinguished. I reveled in the interplay of Maine’s idyllic landscapes, the slow passage of time, and the high-pitched screams of happy campers.
 
-There is a certain freedom that comes from commitment. Maybe if I had chosen to go to graduate school, I would have learned how to make the most of that too. But I felt no trace of regret for going to camp, and for committing to the Camino.
-
-On one of our last nights off, some of the Hungarian staff and I decided to camp in Acadia National Park. We pitched our tents beneath an array of stars and pine silhouettes, lit a fire, and feasted on potato chips, beer, and wine. The smell of sizzling bacon and campfire permeated the air. I looked at my friends, then at the grand night sky. In that moment, it felt as if the universe was watching over me. I entrusted my future to it, I believed that things would work themselves out, I let go of my incessant need to control everything. In the warm arms of the sublime, I felt light, free, happy, and loved. I felt infinite.
+On one of our last nights off, some of the Hungarian staff and I decided to camp in Acadia National Park. We pitched our tents beneath an array of stars and pine silhouettes, lit a fire, and feasted on potato chips, beer, and wine. The smell of sizzling bacon and campfire permeated the air. I looked at my friends, then at the grand night sky. In that moment, it felt as if the universe was watching over me. I entrusted my future to it, I believed that things would work themselves out, I let go of my incessant need to control everything. In the warm arms of the sublime, I felt light, free, happy, and loved. In the words of Charlie from The Perks of Being a Wallflower, I felt infinite.
 
 ## The Woods of Maine
 
 On the last day of camp, I paddled out to the middle of Echo Lake and sat amid the glossy water, wondering what to make of the whole experience, contemplating how the future would unfold.
 
-It was my birthday –– August 10th. Not much has changed but me, I thought. I am the same person as I was yesterday, only now, I will walk around with the number 24 plastered to my identity. I was no longer 23, 15, or 10. And yet, in a way, I was: I was still the flippant adolescent of 14, the bashful child of 7, the confused adult of 18 to 23. How will I go about defining 24? If I'm lucky, by adventure, courage, love, and maybe even commitment. I wrote a note to myself:
+It was my birthday –– August 10th. Not much has changed but me, I thought. I am the same person as I was yesterday, only now I will walk around with the number 24 plastered to my identity. I was no longer 23, 15, or 10. Yet, in a way, I still was: I was still the flippant adolescent of 14, the bashful child of 7, the confused adult of 18 to 23. How will I go about defining 24? If I'm lucky, by adventure, courage, love, and maybe even commitment. 
 
-This life you have before you is the only certainty. Don’t take it for granted. Own it and live it with meaning, beauty, courage, grace, and presence. Dare to dream. Spend it with people you love, spend it loving people. Be heartbroken, be brave, make mistakes––do all the things that scare the shit out of you.
+I made a promise to myself: This life you have before you is the only certainty. Don’t take it for granted. Own it and live it with meaning, beauty, courage, grace, and presence. Dare to dream. Spend it with people you love, spend it loving people. Be heartbroken, be brave, make mistakes––do all the things that scare the shit out of you.
 
-Once camp was over, I drove down to New Hampshire to see an old friend. We hiked Mount Washington –– I went barefoot –– and exchanged memories and stories in the backdrop of the White Mountains. Afterwards, I camped in the woods of Maine for five days while waiting for my friend E to finish her remaining days at camp. Then we were headed to Canada.
+Once camp was over, I drove down to New Hampshire to see an old friend. We hiked Mount Washington –– I went barefoot –– and exchanged stories in the backdrop of the White Mountains. Afterwards, I camped in the woods of Maine for five days while waiting for my friend E to finish her remaining days at camp.
 
-My days in the woods of Maine were long. In my prolonged state of solitude, I was able to view my inner demons with staggering clarity. Insecurity, self-doubt, fear, loneliness –– they vacated the forefront of my being. Only once I had learned to accept them as parts of me could I enjoy nature’s invitation to serenity.
+My days in the woods of Maine were long. In my prolonged state of solitude, I was able to view my inner demons with staggering clarity. Insecurity, self-doubt, fear, loneliness –– they had settled themselves in the forefront of my being. Only until I had learned to accept them as parts of me could I enjoy nature’s invitation to serenity.
 
-Sitting on the crest of Seboeis Lake, I watched the clear water shimmer. I then began to feel a growing sense of interconnectedness with the world. My problems suddenly felt small, insignificant, and petty amid the grandeur, fading altogether as the water reposed and the sun descended. Silence ensued and the passage of time disappeared. My eyes began to swell. I then began to cry and laugh out of sheer euphoria. My audience, an ensemble of crickets, cicadas and other creatures, echoed in unison under the starry sky. I had been invited to witness a crescendo of grand proportions, and nature was the composer. My loneliness and sorrow was alleviated, and the words of Oliver Sacks ran through my mind: I was having intercourse with the world.
+Sitting on the crest of Seboeis Lake, I watched the clear water shimmer, and a growing sense of calm began to overtake me. My problems suddenly felt small, insignificant, and petty amid the grandeur, fading altogether as the water reposed and the sun descended. Silence took its hold and the passage of time disappeared. My eyes began to swell. I then began to cry and laugh out of sheer euphoria. My audience, an ensemble of crickets, cicadas and other creatures, echoed in unison under the starry sky. I had been invited to witness a crescendo of grand proportions, and nature was the composer. My loneliness and sorrow was momentarily alleviated, and the words of Oliver Sacks ran through my mind: I was in the middle of an intercourse with the natural world.
 
-Moments like these were rare, though I've noticed they are more likely to visit in solitude and conditions of stillness, and when one is confronting their demons. Should a person survive the trial by fire, she will come out more alive and deeply in-tune with the world around her. Her problems become grotesquely small. Her capacity for love and understanding and presence deepens. She becomes infinitely more capable. She is grateful for being invited back as a cast member in the grand play of the cosmos. There is no hesitation in cherishing the banquet of life.
+Moments like these were rare, though I've noticed they are more likely to visit in solitude and conditions that allow for total stillness. Should a person survive the trial by fire, they will come out more alive and deeply in-tune with the world around them. Their problems become grotesquely small. Their capacity for love, understanding, and presence deepens. They become infinitely more capable. They are grateful for the chance to be called back as a cast member in the grand play of the cosmos. There is no hesitation in cherishing the banquet of life.
 
 ## Canada
 
-E and I met during Be a Camper Day, a day in which the counselors participate in the various programs throughout the camp, such as fishing or water-skiing. I led fishing in the Science Discovery Program, though the poles weren't ready yet, so we took the other counselors out on Echo Lake in canoes.
+E and I met during Be a Camper Day, a day in which the counselors participate in the various programs throughout the camp, such as fishing or water-skiing. I led fishing in the Science Discovery Program, though the fishing poles weren't ready yet, so we took the counselors out on Echo Lake in canoes.
 
-E happened to be in my canoe. She initially seemed hesitant to tag along because she either didn’t know how to swim, or she couldn’t swim very well. Regardless, in an attempt to ease her concerned look – and, yes, probably to impress – I assured her that I was a mighty-fine canoe-er, that she could trust me to take her on a voyage across the vast Echo Lake. In truth, it was my first time ever commanding a canoe, and luckily, it turned out to be a relatively easy task.
+E happened to be in my canoe. Initially she seemed hesitant to tag along because she either didn’t know how to swim, or she couldn’t swim very well. Regardless, in an attempt to ease her concerned look – and, yes, probably to impress – I assured her that I had done this before, that she could trust me to take her on a voyage across the vast Echo Lake. In truth, it was my first time ever commanding a canoe. Luckily, it turned out to be a relatively easy task.
 
-The summer air was pristine, the glassy lake gleamed in the sunlight, loon calls echoed in the distance. It was a perfect afternoon. I took notice of E’s dark, round eyes, of her rough European accent, of her curious necklace with a dragon hanging from it. She was from Hungary and worked in the Chef Camp program, and she liked Game of Thrones. We talked about nature and our impact as humans on it, what life at camp was like, our lives outside of camp, and U.S. consumerism, among other things.
+The summer air was pristine, the lake gleamed in the sunlight, loon calls echoed in the distance. It was a perfect afternoon. I took notice of E’s dark eyes, her rough European accent, her curious necklace with a dragon hanging from it. She came from Hungary and worked in the Chef Camp program, and she liked Game of Thrones. We talked about nature and our impact as humans on it, what life at camp was like, our lives outside of camp, and U.S. consumerism, among other things.
 
-We didn’t get the chance to see each other again until two weeks later. Camp kept us busy, I on the lake and she in Chef Camp. A few days after deciding to walk the Camino, she posted on the camp Facebook page that she was looking for people to go to Canada with.
+We didn’t get the chance to see each other again until two weeks later. Camp kept us busy, I out on the lake and she in the corners of Chef Camp. A few days after deciding to walk the Camino, she posted on the camp Facebook page that she was looking for people to go to Canada with.
 
-At that point, I had developed a huge crush on her, which, to me, seemed terribly irrational because I wouldn’t be able to do anything about it. Her home was in Hungary, English wasn’t her native language, and I had no clue as to what I would be doing for the rest of the year. The only outcome would be pain and unrequited love. Nevertheless, the feelings were there, and I wanted learn more about her. What did I have to lose? At the very least, the trip would be fun. So I replied to her post.
+I had developed a huge crush on her, which, to me, seemed terribly irrational because I wouldn’t be able to do anything about it. She lived in Hungary, English wasn’t her native language, and I had no clue as to what I would be doing for the rest of the year. Regardless the feelings were there, and I wanted learn more about her. What did I have to lose? At the very least, the trip would be fun. So I replied to her post.
 
-Later, we met and talked about the trip. We considered flying there, but that meant I would have to find a place to store my car – more unnecessary expenditures. So I offered to drive instead. She looked at me with excited, and perhaps bewildered eyes, and said, in her rough, alluring Hungarian accent, “We’re going to fucking Canada!”
+Later, we met and talked about the trip. We considered flying there, but that meant I needed to find a place to store my car – more unnecessary expenditures. So I offered to drive instead. She looked at me with excited, borderline bewildered eyes and said, in her rough Hungarian accent, “We’re going to fucking Canada!”
 
-In two days we drove from Maine to Quebec City, from Quebec City to Montreal, and from Montreal to Niagara Falls, with detours to Ottawa and Cobourg in-between. During that time, our friendship grew through a jumble of stupid jokes and cringy puns, camper stories, and metal music. She taught me Hungarian curse words and I taught her American slang: brooo, suhp duuude, liike, y’know.
+In two days we drove from Maine to Quebec City, from Quebec City to Montreal, and from Montreal to Niagara Falls, with detours to Ottawa and Cobourg in-between. During that time, our friendship grew through a jumble of stupid jokes and cringy puns, camper stories, and metal music. She taught me Hungarian curse words and I taught her American slang: stuff like brooo, suhp duuude, liike, y’know.
 
-But what really brought us close was vulnerability: we were open, honest, and non-judgmental in sharing each other’s past, in exchanging our deepest fears and darkest worries. The things we told each other were things that could destroy a person, things that most people bury and hide for eternity. And yet there we were, attempting to piece together the broken shards of our pasts.
+But what really brought us closer was vulnerability: we were open, honest, and non-judgmental in sharing our pasts, in telling our deepest fears and darkest worries. What we told each other were things that could destroy a person, things that most people choose to bury and hide for eternity. Yet there we were, attempting to piece together the incomplete shards of our disparate pasts.
 
-In those moments, I wanted to pull her close, wrap her in my arms, and say that everything would be fine–that everything was fine, at least for the moment; that even if I do not fully understand her, I would always be there; that we, with our powers combined, could get through anything; that she was with me, the overly optimistic, hopelessly romantic, Phil.
+In those moments, I wanted to pull her close, wrap her in my arms, and say that everything would be fine – that everything was fine, at least for the moment; that even if I did not fully understand her, I would always be there; that we, with our powers combined, could get through anything; that she was with me, the overly optimistic, hopelessly romantic, Phil.
 
-We parted ways at Toronto Pearson International Airport, she to Mexico, and I to Ohio. It was a bittersweet goodbye–bitter because I have never been good at letting go, despite all of the practice I've had; sweet in having shared the journey with such a wonderful person.
+We parted ways at Toronto Pearson International Airport, she to Mexico, and I to Ohio. It was a bittersweet goodbye – bitter because I have never been good at letting people go, despite all of the practice I've had; sweet because I was lucky enough to have had and shared the journey.
 
-But she said it wasn’t goodbye, it was a see you later.
+"Phil, it not a goodbye. It's a see you later."
 
 ## Departure to the Camino: September 5th
 
 I woke up in Boston on the cold, wooden floor of my friend’s apartment. It was his first day of graduate school, and my last in the U.S.
 
-The only possessions I had were my 30L backpack, three sets of outfits, two books, a sleeping bag, my down jacket, a phone charger, toiletries, my boots, and a 12-pack of granola bars. My pack weighed no more than 10 lbs. The only thing left to prepare was my mind. I was jittery, nervous, and excited.
+My only possessions were a 30L backpack, three sets of outfits, two books, a sleeping bag, my down jacket, a phone charger, toiletries, my boots, and a 12-pack of granola bars. My pack weighed no more than 10 lbs. The only thing left to prepare was my mind. I was jittery, nervous, and excited.
 
 I spent most of the morning in a coffee shop writing a letter to my friends:
 
->My life on the move is far from over: tonight, I will fly to Europe to begin my journey on the Camino de Santiago, a 500 mile trek across Northern Spain. It will take me 33-35 days to complete. And while I intend to do it alone, it will not be a solitary experience; I expect to meet and travel with people of all ages and walks of life on the road to Santiago. The Camino is one of my lifelong goals, and the opportunity to do it could be no more prime than now.
+> My life on the move is far from over: tonight, I will fly to Europe to begin my journey on the Camino de Santiago, a 500 mile trek across Northern Spain. It will take me 33-35 days to complete. And while I intend to do it alone, it will not be a solitary experience; I expect to meet and travel with people of all ages and walks of life on the road to Santiago. The Camino is one of my lifelong goals, and the opportunity to do it could be no more prime than now.
 
->My motivations are simple: I want to see the world. I want to grow. I want to do something that scares the shit out of me.
+> My motivations are simple: I want to see the world. I want to grow. I want to do something that scares the shit out of me.
 
->In the pursuit of dreams, dreamers are met with several challenges. In my case, it was always figuring out what my next step was, dealing with the incessant self-doubt and fear that accompanies the process, and letting go of the attachments I developed with people, comfort, and calcified ideas that no longer served me. Such is the nature of walking the less trodden path. It’s unpaved, rocky, and dissuasive. If you don’t watch your step, you might just slip.
+> In the pursuit of dreams, dreamers are met with several challenges. In my case, it was always figuring out what my next step was, dealing with the incessant self-doubt and fear that accompanies the process, and letting go of the attachments I developed with people, comfort, and calcified ideas that no longer served me. Such is the nature of walking the less trodden path. It’s unpaved, rocky, and dissuasive. If you don’t watch your step, you might just slip.
 
->Yet “[taking] the [road] less traveled by, / that has made all the difference”, the difference being a profound learning experience, a life lived on your own terms, a dream turned concrete reality.
+> Yet, in the words of Robert Frost, “[taking] the [road] less traveled by, / that has made all the difference”, the difference being a profound learning experience, a life lived on your own terms, a dream turned concrete reality.
 
->That, in a nutshell, is where I am going. You’ll know when I have made it across. Thanks for the love and support.
+> That, in a nutshell, is where I am going. You’ll know when I have made it across. Thanks for the love and support.
 
->With Sincerity and Gratitude,
+> With Sincerity and Gratitude,
 
->Your friendly neighbor, Phil
+> Your friendly neighbor, Phil
 
 After posting the update, I thought of my parents and the argument we had a few days prior about my decision to walk the Camino. They believed I was being reckless, that I should’ve taken the guaranteed opportunity at Boston University; that I, at the age of 24, should have my life figured out. I felt like a disappointment, a terrible son. But this was the path I wanted to walk, and I needed to express my grievances. I needed them to understand who their son was.
 
-Journal Entry - 8/29/17
+A journal entry expressing my frustrations:
 
-Sorry I am not expectation or desire
-Sorry I am not who you want me to be.
-But I am not sorry for being me
-for walking my own path.
-
-Journal Entry - 8/30/17
-
-About the world, about my place
-Within this infinite space,
+About the world, about my place,
+About where I belong
+In this infinite space,
 I sit at the margin, misunderstood.
 
 We collide and tear each other apart
@@ -109,12 +101,12 @@ What ever happened to our graceful start?
 I a child, you
 unconditional.
 
-I don’t want understanding–I want love.
+I don’t want understanding – I want love.
 Forgive me and my trespasses
-As I learn to forgive myself
-and to love you.
+As I learn how to forgive myself,
+As I learn how to love you.
 
-I wrote them a letter expressing how I truly felt. I sent it some minutes before boarding my plane to Europe:
+I then wrote them a letter expressing how I truly felt. I sent it minutes before boarding my plane to Europe:
 
 >Dear Mom and Dad,
 
@@ -140,9 +132,7 @@ I wrote them a letter expressing how I truly felt. I sent it some minutes before
 
 >Your Son
 
-Sending it was one of the hardest things I have ever done. I was petrified -- what would they say? Would they even understand? We weren’t a family that expressed our feelings so openly like this. It was always about the basics -- food, water, money, school, family. Talking back –- which included expressing your opinions –- was not tolerated. You simply had to sit and listen.
-
-I hated it. I hated being lectured at. Often my Dad would say, “Do you understand what I am saying? Or are the words flying out of the other ear?” Yeah Dad, sometimes they did; often times they did.
+Sending it was one of the hardest things I have ever done. I was petrified -- what would they say? Would they even understand? We weren’t a family that expressed our feelings so openly like this. It was always about the basics -- food, water, money, school, family. Talking back –- which included expressing your feelings –- wasn't normal. You simply had to sit and listen.
 
 Before boarding, my Mom left me with this message:
 
@@ -150,9 +140,9 @@ Before boarding, my Mom left me with this message:
 
 Heartbroken? Swelling with love? Check and check.
 
-Are we ever truly ready for the future? I don’t think so. But that shouldn’t deter us from it. We will –- we must -– continue to march on into the darkness of the unknown light. Life is uncertain. Whether or not you have fun in the process, that is a choice, and I have chosen to dance.
+Are we ever truly ready for the future? I don’t think so. But that shouldn’t deter us from it. We will –- we must -– continue to march on in the darkness of the unknown light. Life is uncertain. Whether or not you have fun in the process, that is a choice, and I have chosen to dance.
 
-I boarded the plane, unsure of what was to come. In the air, I took one last look at the Boston skyline. Clouds pressed against the horizon. A brilliant swath of pinkish-orange hues left the sky ablaze.
+I boarded the plane, unsure of what was to come. In the air I took one last look at the Boston skyline. Clouds pressed against the horizon. A brilliant swath of pinkish-orange hues left the sky ablaze.
 
 Behind me stood home. Ahead, answers amid a foreign landscape.
 

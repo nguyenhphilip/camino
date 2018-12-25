@@ -6,15 +6,19 @@ categories: "Camino de Santiago"
 ---
 
 These are the letters M and I wrote to each other after she was gone. They might give you a better picture of my Camino experience. Writing to her was always a highlight. Sorry for the grammar.
+
 ## <center>...</center>
 
 ### September 21, 2017
+
 >I just realized I did not give you my email. Safe travels! Thank you for everything.
+
 >–Phil
 
 ## <center>...</center>
 
 ### September 23, 2017
+
 >Yesterday, as I walked away from Burgos, it clicked: you were gone.
 
 >When I had reached my destination, I went to the church and sat in silence for awhile – I even prayed! My mind ran through all of our moments and memories, like a broken record player… I was drowning under the weight of an emotional tsunami.

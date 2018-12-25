@@ -33,7 +33,7 @@ Home wasn't ever about a place or its inhabitants. Home begins and grows from th
 
 I am reminded of a quote by Joanna Field:
 
->“I did not know that I could only get the most out of life by giving myself up to it.”
+> “I did not know that I could only get the most out of life by giving myself up to it.”
 
 That feeling I had in Santiago –– of wholeness, interconnectedness, fluidity, shapelessness, of being something outside of myself –– it didn't last long, but something in me had shifted.
 

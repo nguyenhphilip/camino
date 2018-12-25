@@ -4,35 +4,34 @@ date: 2017-12-13T06:09:43-04:00
 draft: false
 categories: "Camino de Santiago"
 ---
-I arrived in Belgium late in the afternoon. The weather was exceptional: half-clouded skies with no reservation of sunlight, a perfect balance of cool and warm. I exited from the train station and hoisted myself against a tall statue, eagerly looking for my squirrelly Belgium. 15 minutes had passed before I noticed her standing only 20 meters behind me, clothed in a hoodie and a black leather jacket, gray faded jeans and the tall boots of an amazon. Upon realizing who it was looking at her, we sprinted at one another and embraced as someone had come home from war. It felt good to hold her again. Her radiating eyes still had the ability to arrest me.
+
+I arrived in Belgium late in the afternoon. The weather was exceptional: half-clouded skies with no reservation of sunlight, a perfect balance of cool and warm. I exited from the train station and hoisted myself against a tall statue, eagerly looking for my squirrelly Belgium. 15 minutes had passed before I noticed her standing only 20 meters behind me, clothed in a hoodie and a black leather jacket, gray faded jeans and the tall leather boots of an amazon. Upon realizing who was looking at her, we sprinted toward one another and embraced as someone had just come home from war. It felt good to hold her again. Her radiating eyes still had the ability to fully arrest my sensibilities.
 
 We caught up over coffee at a nearby restaurant. She talked about the difficulties of returning home, the growing tension between her and her parents, and the continued struggle of trying to find balance within her medical studies. I told her about the rest of my time on the Camino – the magical moments, the people I met, reaching Santiago, the decision not to go further, saying goodbye. It was surreal, the fact that I was in Belgium, staying with someone I had met on the Camino, with M.
 
-I was still confused about my feelings toward her. I believed I was in love, but something about it just didn’t feel right. Was it because we had met on the Camino? Would it have been too good to be true? Or did I simply get the vibe that she didn’t love me back in the way I wanted her to? I was dancing on a thin wire, unsure of when I would fall.
+I was still confused about my feelings toward her. I believed I was in love, but something about it just didn’t feel right. Was it because we had met on the Camino? Would it have been too good to be true? Or did I simply get the vibe that she didn’t love me back in the way I wanted her to? I was walking on a thin wire, unsure of when I would fall.
 
 ## <center>...</center>
 
-Later, we went to a park and continued our conversation. The topic transitioned to love when she mentioned that S had sent her a firey, passionate email admitting that he had fallen in love with her the moment they met. She was confused and a bit bewildered by the letter.
+Later we went to a park and continued our conversation. The topic transitioned to love when she mentioned that S had sent her a firey, passionate email admitting that he had fallen in love with her the moment they met. She was confused and a bit bewildered by the letter.
 
 We often wondered why he was walking the Camino, a question which he always deflected or never gave a straight answer to. Maybe he wasn't ready to tell us why he was walking.
 
 For awhile, we brainstormed ideas of what his motivations were for walking the Camino. Maybe he was a lost-soul searching for love; maybe he was just a normal guy struggling in life like everyone else. Maybe he did something unforgivable back in his home country. Whatever the case, the Camino had a way of connecting people despite the mysteries – or perhaps because of them. On the Camino, the past wasn't as important as the fact that we were there, walking together, sharing our common humanity, sharing a love of the road.
 
-Eventually, our conversation transpired toward the topic of us – me and her – and she mentioned something I will never forget: “You know, back on the Camino, I could have fallen in love with you. We became so close so fast, and it scared me a little. But the reason I didn’t was that it would have changed the reasons for why we were there.” It was strange to talk so openly about us like this, but I replied that I understood and had felt the same way. Though, a different dialogue was occurring in my head: Yes, love does change people, but that’s precisely what makes it so beautiful. Wasn’t the Camino about embracing all that comes your way? We dropped the topic and went to get dinner and ice cream.
+Eventually, our conversation transpired toward the topic of us – me and her – and she mentioned something I will never forget: “You know, back on the Camino, I could have fallen in love with you. We became so close so fast, and it scared me a little. But the reason I didn’t was that it would have changed the reasons for why we were there.” It was strange to talk so openly about us like this, but I replied that I understood and had felt the same way. Though a different dialogue was playing in my head: Yes, love does change people, but that’s precisely what makes it so beautiful. Wasn’t the Camino about embracing all that comes your way? We dropped the topic and went to get dinner and ice cream.
 
 ## <center>...</center>
 
 We’re in her room, listening to Leonard Cohen. The question still lingers: do I love her? Does she love me? I won’t know until we talk about it. I won’t know until it's out in the open. I’m afraid. What if I jeopardize what we already have? No, we’re different. We can talk about anything and everything.
 
+My gut. A block of lead hanging from it. Something beating faster and faster. It wants to hide. To run. To fly. To breathe.
 
+I am brittle glass, a thin sheet of paper on the eve of an unanticipated storm. In the distance, a gust with the power to break trees, and men. A fire begins to kindle.
 
-My gut. A block of lead hanging from it. Something beating faster and faster.It wants to hide. To run. To fly. To breathe. Vessels contract. A river flows. Again. Again. Again.
+I turn toward M. She looks straight at me. Through me. Inaudible words enter the air. Time collapses.
 
-I am brittle glass, a thin sheet of paper on the eve of some forlorn Christmas. In the distance, a gust with the power to break trees, and men. It kindles a fire that resembles courage.
-
-I turn toward M. She looks straight through me. Inaudible words enter the air. Time collapses.
-
-“I'm in love with you.”
+“Hey, I'm in love with you.”
 
 Silence.
 
@@ -46,13 +45,9 @@ A moment between moments.
 
 What we have, I have never had it with anyone.
 
-You are so special to me.
-
-Please understand that this is the greatest compliment I can give: 
+You are so special to me...
 
 I wish I could fall in love with you.
-
-You are such a pure person.
 
 Your love has no bounds.
 
@@ -60,7 +55,7 @@ Your love is so pure.
 
 You––”
 
-A tiny piece of glass is shattering into a thousand tinier pieces. Time sweeps them into the pan of reality. A naked thread remains. The voice of Leonard Cohen in the nearby distance:
+A tiny piece of glass is shattering into a thousand tinier pieces. Time sweeps them into the pan of reality. A naked thread remains. The voice of Leonard Cohen rings in the nearby distance:
 
 > Your letters they all say that you're beside me now. <br>
 > Then why do I feel alone? <br>
@@ -72,21 +67,21 @@ A tiny piece of glass is shattering into a thousand tinier pieces. Time sweeps t
 
 ## <center>...</center>
 
-I feel numb the next day, but put on my front. M and I go to an African church service. We sing and listen to a genial man preach about love, forgiveness, redemption. I hear nothing. What the hell do you know about love? We eat, drink, chat, and walk around. Things go as planned. Then we’re in the train station. A young, affectionate couple is sitting near us. They're utterly unavoidable, grossly enmeshed and atop one another. Time halts once again.
+I feel numb the next day but put on a front. M and I go to an African church service. We sing and listen to a genial man preach about love, forgiveness, redemption. I hear nothing. _What the hell do you know about love?_ We eat, drink, chat, and walk around. Things go as planned. Then we’re in the train station. A young, affectionate couple is sitting near us. They're utterly unavoidable, grossly enmeshed and atop one another. Time halts once again.
 
 Anger. Sadness. Disappointment.
 
-I can't be angry, sad, disappointed.
+No. I can't be angry, sad, disappointed.
 
-No, to be in love, to have fallen in love, to have been heartbroken, that, in a way, is a gift, despite the pain I currently feel.
+To be in love, to have fallen in love, to have been heartbroken. That, in a way, is a gift.
 
-Am I rationalizing my pain? I don’t know. I do know though that this will pass. I have never felt more alive.
+Am I rationalizing my pain? I don’t know. It doesn't matter. I have never felt more alive.
 
 I guess this is it then.
 
-We embrace one last time and say goodbye. I board the train and look at her through the opaque window. She looks back. I wave and turn inwards. A tear rolls down my cheek. The ineffable fills me. I close my eyes.
+We embrace one last time and say goodbye. I board the train and look at her through the opaque window. She looks back. I wave and turn inwards. A tear rolls down my cheek. I close my eyes.
 
-An engine whirs to life, and slowly, slowly, I am taken by the arms of an unknown future. Somewhere in the world, the sun is shining.
+The engine whirs to life, and slowly, slowly, I am taken by the arms of an unknown future. Somewhere else in the world, the sun is shining.
 
 ## <center>...</center>
 

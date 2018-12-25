@@ -4,48 +4,50 @@ date: 2017-12-26T06:09:43-04:00
 draft: false
 categories: "Camino de Santiago"
 ---
->We are quick to fill the silence with our unnecessary words and thoughts. When >quiet presents itself, welcome it with an open heart. Beauty is found within >stillness and silence. We are found within stillness and silence.
 
 ## <center>...</center>
 
-Another gray and rainy day. We slept in and started walking at 8am. After the deep and enlightening conversations of yesterday, we decided it would be best to walk in solitude today –– together, but left to the vicinity of our own worlds.
+Another gray and rainy day. We slept in and started walking at 8am. After the deep and enlightening conversations of yesterday, we decided it would be best to walk in solitude today –– together, but left to the vicinity of our inner worlds.
 
 My feelings throughout the morning contrasted with the highs of the previous; I was in a blue, melancholic state of mind. I worried about the future, about something out of reach. What if I returned unchanged? What if the Camino turned out to be a waste of time?
 
-These thoughts disturbed me, though I didn’t push them away. I listened and saw them as they were – thoughts with no actual bearing on reality, despite how real they felt. Once I acknowledged their presence, without judgment, they simply faded, and I resumed my walk.
+I was annoyed at having these thoughts, though I didn’t push them away. I listened and saw them as they were – thoughts with no actual bearing on reality, despite how real they felt. Once I acknowledged their presence, they simply faded, and I resumed my walk.
+
 ## <center>...</center>
 
-After 2 hours, we stopped at a small cafe and broke our vow of silence. The solitude had led us to new and creative insights, while the distance had fueled a burning desire for each other's company; when we started talking again, we were unable to stop. The conversations and ideas were so rich and thought-provoking! It was like seeing old friends again after years of prolonged physical and psychic distance.
+After 2 hours, we stopped at a small cafe and broke our vow of silence. The solitude had led us to new and creative insights, while the distance had fueled a burning desire for each other's company; when we started talking again, we were unable to stop. The conversations and ideas were rich and thought-provoking! It was like seeing old friends again after years of prolonged distance.
 
 ![](/../images/strasse1.jpg)
 
 We continued our walk, though without the silence. I walked with Matilde while Franca and M were a few paces ahead of us. Something seemed to be on Matilde’s mind, so I inquired.
 
-Matilde had just graduated from high school and was taking a year off before applying to university. This was her first time being away from home. At the bus station in Bayonne, right before she and Franca had met me, she had a mental breakdown, understandably – not only was she adjusting to the fact that she was far from home, she was also about to walk across a completely unknown, unfamiliar country. She also knew that what she was experiencing was just a part of growing up. She knew she would be fine, especially in good company. I admired her courageous and optimistic spirit.
+Matilde had just graduated from high school and was taking a year off before applying to university. This was her first time being away from home. At the bus station in Bayonne, right before she and Franca had met me, she had a mental breakdown, understandably – not only was she adjusting to the fact that she was far from home, she was also about to walk across a completely unknown, unfamiliar country. But she knew that what she was experiencing was just a part of growing up. She knew she would be fine, especially in good company. I admired her courageous and optimistic spirit.
 
-We talked about all sorts of things: destiny, fate, family, love, and of course, books. I was thrilled to discover that Matilde was also a voracious bibliophile. We were baffled to learn that the fairly obscure novel, Cloud Atlas, was a shared favorite. What were the odds? Was there a reason behind the sudden entwinement of our universes, like that of the six protagonists of Cloud Atlas?
+We then talked about a variety of topics: destiny, fate, family, love, and of course, books. I was thrilled to discover that Matilde was also a voracious bibliophile. Both of us were baffled to learn that the fairly obscure novel, Cloud Atlas, was a shared favorite. What were the odds? Was there a reason behind the sudden entwinement of our universes, like that of the six protagonists of Cloud Atlas?
 
 She had thought my name was Timothy: “You just looked like a Timothy, so Franca and I decided to call you Timothy.” I flipped out because that was my Dad’s name.
 
-I suppose we could have dismissed these moments as a series of mere coincidences. But we didn't. Where's the fun in that? We, as humans, have the power to write our own narratives through the meaning we give to our experiences. We are both the pen and the paper.
+I suppose we could have dismissed these moments as a series of mere coincidences. But we didn't. Where's the fun in that? We, as humans, have the power to write our own narratives through the meaning we give to our experiences. We are both the pen and the paper on which it writes.
 
 Etched in the script of the starry cosmos was the convergence of two seemingly disparate universes, that of Matilde and Phil, on the 10th day of a gray and rainy September in the year of 2017 on the Camino de Santiago.
+
 ## <center>...</center>
 
-We stopped at a quiet donation-based albergue a few kilometers from the city of Pamplona. The albergue had a calm and inviting atmosphere: on the walls were colorful plates and pictures, paintings of pilgrims, various cultural articles. My favorite piece was a poster with the word love transcribed in multiple languages, likely written by past pilgrims who had stayed at the albergue.
+We stopped at a quiet donation-based albergue a few kilometers from the city of Pamplona. The albergue had a calm and inviting atmosphere: on the walls were colorful plates and pictures, paintings of pilgrims, various cultural articles. My favorite piece was a poster with the word love transcribed in multiple languages, likely written by the past pilgrims who had also stayed at the albergue.
 
-After unpacking and showering, I went into the kitchen and met a pilgrim named Maria. She was from Oregon and had recently retired from working as a speech therapist and professor. To celebrate, she was walking the Camino. I told her I was searching for direction, that I was feeling lost and unsure of what I wanted. I vented my thoughts to her for at least an hour, and she just listened. When I was finished, she simply smiled and looked at me with her soft eyes, the way a loving mother does.
+After unpacking and showering, I went into the kitchen and met a pilgrim named Maria. She was from Oregon and had recently retired from working as a speech therapist and professor. To celebrate, she had decided to walk the Camino. I told her I was searching for direction, that I was feeling lost and unsure of what I wanted. I vented my thoughts to her for at least an hour, and she simply listened. When I finished, she smiled and reassured me with her soft eyes, the way a loving mother does.
 
-"Don’t worry. You’ll figure it out as you go. Everyone has their own path. You need to be practical, but you also need to listen to your heart. That’s why you’re here now. ”
+"Don’t worry. You’ll figure it out as you go. Everyone has their own path. You need to be practical, but you also need to listen to your heart. That’s why you’re here now.”
+
 ## <center>...</center>
 
 The girls and I went to the church and rang the infamous bell at the top of its tower – it was the only bell pilgrims were allowed to ring on the Camino. Afterwards, we went downstairs, and I noticed a small shrine plastered with green sticky notes surrounding an effigy of Jesus. On them were the writings of past pilgrims, mostly notes of gratitude. Matilde, Franca, M, and I added our own to the collection.
 
-Later that night, we had a community dinner – pasta, salad, wine.
+Later that night, we shared a dinner with the others – pasta, salad, wine.
 
 Once we finished, we went into the church again for a short reflection lead by the nuns who help maintain the albergue. We sat in a small circle, and each of us shared who we were and, voluntarily, why we were walking the Camino.
 
-To end the night, Matilde and Franca were asked to sing a song. They decided to sing an Irish blessing song, Möge die Straße in German. It was a song they sung at the end of every school year before departing into the bliss of summer vacation. The setting was perfect. We had no essence of what adventures, trials, and lessons lay ahead.
+To end the night, Matilde and Franca were asked to sing a song. They decided to sing an Irish blessing song, Möge die Straße, in German. It was something they sung at the end of every school year before departing into the bliss of summer vacation. The setting was perfect. We had no essence of what adventures, trials, and lessons lay ahead.
 
 > ### Möge die Straße
 >May the road rise to meet you<br>
