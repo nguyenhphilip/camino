@@ -7,11 +7,11 @@ categories: "Camino de Santiago"
 
 I woke to the sound of creaking bunk beds, rustling backpacks, and clanking poles. 5:30 a.m. _Time to go._ I put my boots on, packed my sleeping bag, and went downstairs.
 
-Small talk of good weather and stellar walking conditions. Free bread stiff as stones. I devour as much of it as my mouth could muster and head out.
+Small talk of good weather and stellar walking conditions. There's free bread, though it's as stiff as stones. I devoured as much of it as my mouth could muster and went on my way.
 
-It was dark, cold, and misty. I had heard the first day was arduous: 27.4 kilometers from Saint-Jean to Roncesvalles, with a gradual gain of 1400 meters in elevation.
+The first day was supposed to be arduous: 27.4 kilometers from Saint-Jean to Roncesvalles, with a gradual gain of 1400 meters in elevation. It was dark, cold, and misty out.
 
-Regardless I equipped myself with a smile, shouldered my rucksack, and began putting one foot in front of the other.
+Regardless, I equipped myself with a smile, shouldered my rucksack, and began putting one foot in front of the other.
 
 For most of the morning, I walked along a narrow road populated by small farms and modest homes. A constant stream of white vans drove by, presumably transporting those who were daunted by the unavoidable ascent over the Pyrenees, or those who were physically incapable. The air stank of manure and wheat, though I felt invigorated by a sense of new beginnings.
 
@@ -55,9 +55,7 @@ Nervousness. I take a deep breath.
 
 Excitement. I let it go, slowly.
 
-They’re two sides of the same coin. 
-
-I stand on the precipice.
+They’re two sides of the same coin, and I am standing on the precipice.
 
 ---
 
