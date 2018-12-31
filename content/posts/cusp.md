@@ -4,7 +4,7 @@ date: 2017-12-25T06:09:43-04:00
 draft: false
 categories: "Camino de Santiago"
 ---
-In the morning we walked to Pamplona, our first city. I ran into Maria and chatted with her for a brief moment before running off with the girls to get breakfast. I didn’t know it then, but that would be my final conversation with her. One thing the Camino teaches you, by nature of necessity, is how to let go. Of people, places, your past.
+In the morning we walked to Pamplona, our first city. I ran into Maria and chatted with her for a brief moment before running off with the girls to get breakfast. I didn’t know it then, but that would be my final conversation with her. One thing the Camino teaches you, by nature of necessity, is how to let go. Of people, places, your past. The present demands it be so.
 
 We stopped at a small bakery near the entrance of the city. The owners were friendly, the chocolate and pastries delectable.
 
