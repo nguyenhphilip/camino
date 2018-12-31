@@ -146,7 +146,7 @@ Heartbroken? Swelling with love? Check and check.
 
 <br>
 
-Are we ever truly ready for the future? I don’t think so. Life is uncertain. But that shouldn’t deter us from it. We will –- we must -– continue to march on in the darkness of the unknown light. Whether or not you have fun in the process, that is a choice, and I have chosen to dance.
+Are we ever truly ready for the future? I don’t think so. Life is uncertain. But that shouldn’t deter us from it. We will –- we must -– continue to march on in the darkness of the unknown light. Whether or not you have fun in the process, that is a choice. Me? I have chosen to dance.
 
 I boarded the plane, unsure of what was to come. In the air, I took one last look at the Boston skyline. Clouds pressed against the horizon. A brilliant swath of pinkish-orange hues left the sky ablaze.
 
