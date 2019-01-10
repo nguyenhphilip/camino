@@ -7,13 +7,13 @@ categories: "Camino de Santiago"
 
 I arrived in Belgium late in the afternoon. The weather was exceptional: half-clouded skies with no reservation of sunlight, a perfect balance of cool and warm. I exited from the train station and hoisted myself against a tall statue, eagerly looking for my squirrelly Belgium. 15 minutes had passed before I noticed her standing only 20 meters behind me, clothed in a hoodie and a black leather jacket, gray faded jeans and the tall leather boots of an amazon. Upon realizing who was looking at her, we sprinted toward one another and embraced as someone had just come home from war. It felt good to hold her again. Her radiating eyes still had the ability to fully arrest my sensibilities.
 
-We caught up over coffee at a nearby restaurant. She talked about the difficulties of returning home, the growing tension between her and her parents, and the continued struggle of trying to find balance within her medical studies. I told her about the rest of my time on the Camino – the magical moments, the people I met, reaching Santiago, the decision not to go further, saying goodbye. It was surreal, the fact that I was in Belgium, staying with someone I had met on the Camino, with M.
+We caught up over coffee at a nearby restaurant. She talked about the difficulties of returning home, the growing tension between her and her parents, and the continued struggle of trying to find balance within her medical studies. I told her about the rest of my time on the Camino – the magical moments, the people I met, reaching Santiago, the decision not to go further, saying goodbye. It was surreal, the fact that I was in Belgium, staying with someone I had met on the Camino, with Marieke.
 
 I was still confused about my feelings toward her. I believed I was in love, but something about it just didn’t feel right. Was it because we had met on the Camino? Would it have been too good to be true? Or did I simply get the vibe that she didn’t love me back in the way I wanted her to? I was walking on a thin wire, unsure of when I would fall.
 
 ## <center>...</center>
 
-Later we went to a park and continued our conversation. The topic transitioned to love when she mentioned that S had sent her a firey, passionate email admitting that he had fallen in love with her the moment they met. She was confused and a bit bewildered by the letter.
+Later we went to a park and continued our conversation. The topic transitioned to love when she mentioned that Stepan had sent her a firey, passionate email admitting that he had fallen in love with her the moment they met. She was confused and a bit bewildered by the letter.
 
 We often wondered why he was walking the Camino, a question which he always deflected or never gave a straight answer to. Maybe he wasn't ready to tell us why he was walking.
 
@@ -29,9 +29,9 @@ My gut. A block of lead hanging from it. Something beating faster and faster. It
 
 I am brittle glass, a thin sheet of paper on the eve of an unanticipated storm. In the distance, a gust with the power to break trees, and men. A fire begins to kindle.
 
-I turn toward M. She looks straight at me. Through me. Inaudible words enter the air. Time collapses.
+I turn toward Marieke. She looks straight at me. Through me. Inaudible words enter the air. Time collapses.
 
-“Hey, I'm in love with you.”
+“I'm in love with you.”
 
 Silence.
 
@@ -67,7 +67,7 @@ A tiny piece of glass is shattering into a thousand tinier pieces. Time sweeps t
 
 ## <center>...</center>
 
-I feel numb the next day but put on a front. M and I go to an African church service. We sing and listen to a genial man preach about love, forgiveness, redemption. I hear nothing. _What the hell do you know about love?_ We eat, drink, chat, and walk around. Things go as planned. Then we’re in the train station. A young, affectionate couple is sitting near us. They're utterly unavoidable, grossly enmeshed and atop one another. Time halts once again.
+I feel numb the next day but put on a front. Marieke and I go to an African church service. We sing and listen to a genial man preach about love, forgiveness, redemption. I hear nothing. _What the hell do you know about love?_ We eat, drink, chat, and walk around. Things go as planned. Then we’re in the train station. A young, affectionate couple is sitting near us. They're utterly unavoidable, grossly enmeshed and atop one another. Time halts once again.
 
 Anger. Sadness. Disappointment.
 

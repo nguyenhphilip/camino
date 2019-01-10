@@ -5,7 +5,7 @@ draft: false
 categories: "Camino de Santiago"
 ---
 
-I wrote these letters to my friend, S, from the Czech Republic. Including them because they might help to create a better picture of my experience. He had joined M and I a few days before M left. These letters were written afterwards.
+I wrote these letters to my friend, Stepan, from the Czech Republic. Including them because they might help to create a better picture of my experience. He had joined M and I a few days before M left. These letters were written afterwards.
 <center>...</center>
 
 ### September 23, 2017
@@ -19,7 +19,7 @@ I wrote these letters to my friend, S, from the Czech Republic. Including them b
 
 >Hey, thats where Im heading today :) yeah, Im on the way but still not feeling well, hope it wont get worse, cheewing garlic all day, poor pilgrims I meet :) see ya.
 
->–S
+>–Stepan
 
 ## <center>...</center>
 
@@ -45,12 +45,12 @@ I wrote these letters to my friend, S, from the Czech Republic. Including them b
 
 >Ultreya y suseya.
 
->S.
+>Stepan.
 
 ## <center>...</center>
 
 ### September 25, 2017
->Hey S,
+>Hey Stepan,
 
 >I'm keeping you in my thoughts daily and am wishing you a speedy recovery. This too is a part of the journey.
 
@@ -122,12 +122,12 @@ I wrote these letters to my friend, S, from the Czech Republic. Including them b
 
 >Walk it step by step Philip and watch out for signs, even the small ones..
 
->–S
+>–Stepan
 
 ## <center>...</center>
 
 ### September 29, 2017
->Hey S,
+>Hey Stepan,
 
 >Hope you're feeling more of yourself and on the move again. How have the past days been? What did you decide to do? How's the fever? What have you learned?
 
@@ -155,7 +155,7 @@ I wrote these letters to my friend, S, from the Czech Republic. Including them b
 
 >Always higher, always further,
 
->S.
+>Stepan.
 
 ## <center>...</center>
 
@@ -195,14 +195,14 @@ I wrote these letters to my friend, S, from the Czech Republic. Including them b
 
 >I totally get the surreal feeling..
 
->S
+>Stepan
 
 ## <center>...</center>
 
 ## October 7, 2017
->Hi mate how’s your Camino? Gonna be in S. tomorrow or so? Wish you all the best.. hope it will be the best moment of your life.. and that’s just the beginning of an endless row of best days…
+>Hi mate how’s your Camino? Gonna be in Santiago tomorrow or so? Wish you all the best.. hope it will be the best moment of your life.. and that’s just the beginning of an endless row of best days…
 
->S
+>Stepan
 
 ## <center>...</center>
 
@@ -230,7 +230,7 @@ I wrote these letters to my friend, S, from the Czech Republic. Including them b
 
 >Wish you the greatest walk ever though I am not gonna see your eyes when you get there.. but I'll see them another time.
 
->–S
+>–Stepan
 
 ---
 

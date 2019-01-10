@@ -24,7 +24,7 @@ A universe without incandescence.
 
 ## <center>...</center>
 
-S has decided to stay another night in Burgos. Strange. He’s not taking the leave well.
+Stepan has decided to stay another night in Burgos. Strange. He’s not taking the leave well.
 
 I have to go. I have to walk.
 
@@ -106,7 +106,7 @@ A latch released. Gratitude, clarity, stillness, tears.
 
 The sky was poppy red, M’s favorite flower and color, a deep and radiant crimson.
 
-The journey had just begun.
+The journey had only just begun.
 
 ![](/../images/gone.jpg)
 

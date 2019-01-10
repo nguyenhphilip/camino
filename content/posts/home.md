@@ -5,13 +5,13 @@ draft: false
 categories: "Camino de Santiago"
 ---
 
-After Belgium, I spent a night in Prague and took a bus to Hungary the next morning. I stayed there for 10 days with E, the Hungarian woman I had a crush on in the beginning of this whole adventure.
+After Belgium, I spent a night in Prague and took a bus to Hungary the next morning. I stayed there for 10 days with Eszter, the Hungarian woman I had a crush on in the beginning of this whole adventure.
 
 It felt strange, to be back in the swing of normalcy. As if such a thing was possible.
 
-There was no bitterness or resentment toward M. Actually, I was alarmed at how fast I was “moving on”. It seemed as if my mind had compartmentalized the Camino experience, like it was all a dream I had just woken from.
+There was no bitterness or resentment toward Marieke. Actually, I was alarmed at how fast I was “moving on”. It seemed as if my mind had compartmentalized the Camino experience, like it was all a dream I had just woken from.
 
-While with E, it was like nothing had changed. We talked with the same depth and intensity as we had in Canada, and I seemed to be living and acting like a normal human being. The feelings I had for her were still there too, which surprised me. Was I already losing the Camino?
+While with Eszter, it was like nothing had changed. We talked with the same depth and intensity as we had in Canada, and I seemed to be living and acting like a normal human being. The feelings I had for her were still there too, which surprised me. Was I already losing the Camino?
 
 The fact that it was over didn't hit me until I was home in California on October 26th, 2017. A teary-eyed Mother was waiting for me in LAX. She said I looked like a tan monk. We went home. I hugged my Dad and brother. I shared brief stories of my experience, then went to bed.
 

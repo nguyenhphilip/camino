@@ -5,7 +5,7 @@ draft: false
 categories: "Camino de Santiago"
 ---
 
-These are the letters M and I wrote to each other after she was gone. They might give you a better picture of my Camino experience. Writing to her was always a highlight. Sorry for the grammar.
+These are the letters Marieke and I wrote to each other after she was gone. They might give you a better picture of my Camino experience. Writing to her was always a highlight. Sorry for the grammar.
 
 ## <center>...</center>
 
@@ -52,7 +52,7 @@ These are the letters M and I wrote to each other after she was gone. They might
 >Please, tell me more about how things are going on Camino.. if you talk about it, it feels to me almost as if I were also there.. What is Camino sending you at the moment? Who are the people you meet? Are you walking the Meseta, do you like it? And.. what was your miracle today?
 
 >I send you an incredibly warm hug, and all the love that I can!
->-M
+>-Marieke
 
 ## <center>...</center>
 
@@ -126,7 +126,7 @@ These are the letters M and I wrote to each other after she was gone. They might
 >I'm trying for a few days now to find some time to write back decently (and no, not because I'm buried in books :p), but this cannot wait: I'M SO VERY EXCITED THAT YOU COME! :)
 
 >Just tell me, which days exactly will you be in Belgium? I'll provide your fifteen star hotel, of course! :D
->–M
+>–Marieke
 
 ## <center>...</center>
 
@@ -208,7 +208,7 @@ These are the letters M and I wrote to each other after she was gone. They might
 >>Only wake-trails on the waters.<br>
 
 >I send you a big hug, and cannot wait to make it a real one…
->–M
+>–Marieke
 
 ---
 

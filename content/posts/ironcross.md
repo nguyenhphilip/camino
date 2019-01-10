@@ -25,7 +25,7 @@ I didn’t have a rock, but I did have my California license plate. I wasn’t p
 
 It had to be done.
 
-I write Matilde’s, Franca’s, S’s, and M’s name on the plate. They had brought out and continue to foster the best parts of me. I place the plate against the base of the pillar, dismount from the heap, and walk on.
+I write Matilde’s, Franca’s, Stepan’s, and Marieke’s name on the plate. They had brought out and continue to foster the best parts of me. I place the plate against the base of the pillar, dismount from the heap, and walk on.
 
 ![](/../images/cross.jpg)
 

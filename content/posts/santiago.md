@@ -29,7 +29,7 @@ Santiago awaits.
 
 ## <center> ... </center>
 
-A strange thing happened. 10 kilometers from Santiago, while walking along a sidewalk, I was either hallucinating or vividly imagining the presence of every person I had met on the Camino. Matilde and Franca were tiptoeing across the fence to my left, as if on a tightrope. Closer to me was S, Jim, and Kathy. M was to my right. Everyone else was behind me, walking in silence. I realize that I have walked in solitude, but never have I been alone. The people, they have found a permanent place within my heart.
+A strange thing happened. 10 kilometers from Santiago, while walking along a sidewalk, I was either hallucinating or vividly imagining the presence of every person I had met on the Camino. Matilde and Franca were tiptoeing across the fence to my left, as if on a tightrope. Closer to me was Stepan, Jim, and Kathy. Marieke was to my right. Everyone else was behind me, walking in silence. I realize that I have walked in solitude, but never have I been alone. The people, they have found a permanent place within my heart.
 
 ## <center> ... </center>
 
@@ -85,7 +85,9 @@ Karaoke!
 
 The journey would not have been the same without them and the many others with whom I do not have pictures with.
 
-But there was still one story left to close: M.
+But there was still one story left to close: Marieke.
+
+I still had to go see about a girl.
 
 ---
 

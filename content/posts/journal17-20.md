@@ -51,7 +51,7 @@ I was riveted by the story of an elderly Korean woman. She spoke into her transl
 
 The nuns ended the night with music. They played their guitar and sang songs in English, Spanish, and Japanese! I was enchanted. These weren’t your traditional nuns.
 
-Wondering how S is doing. Hope he’s feeling better.
+Wondering how Stepan is doing. Hope he’s feeling better.
 
 ## <center>...</center>
 
@@ -96,7 +96,7 @@ I ran into San! We haven’t seen each other since Day 1. Crazy. He looks great,
 
 Afterwards, we went to watch the sunset. I was annoyed by Karla because she was constantly on her phone, talking and blabbering about essentially nothing. I decided to go to the other side of the park to watch it by myself.
 
-I miss M and her present presence.
+I miss Marieke and her present presence.
 
 ## <center>...</center>
 
