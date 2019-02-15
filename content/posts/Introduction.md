@@ -9,13 +9,15 @@ In May of 2017, while working in a Title I Elementary school in New Hampshire, I
 
 The main character, Amit, is unable to return home after the death of his estranged father. He wanders, lost and filled with pain and grief, and is led to the Camino de Santiago. There he meets many travelers and pilgrims. Some are lost and searching for answers, others are running from their past, but all have a story to share. Along the month-long journey, he is faced with the big questions of life, causing him to grow in a new direction and way of being.
 
-Upon finishing the story, the seeds of the Camino were planted in my mind. "I will walk the Camino one day," I thought. And perhaps by fate, just when I needed them to flower, the seeds came to fruition 3 months later at a summer camp in Maine.
+Upon finishing the story, the seeds of the Camino were planted in my mind. "I will walk the Camino one day," I thought. And perhaps by fate, just when I needed them to bloom, the seeds came to fruition 3 months later at a summer camp in Maine.
 
 ## Summer Camp, Maine
 
-I had just finished my year of service with City Year, New Hampshire. The plan afterwards was to attend Boston University for a graduate program in Educational Leadership and Policy Studies. But it didn’t feel like a good fit for me, so I withdrew my application and, with little time for decisions and no alternatives in sight, I took a job as a camp counselor in Maine.
+I had just finished my year of service with City Year, New Hampshire. The plan afterwards was to attend Boston University for a graduate program in Educational Leadership and Policy Studies. But it didn’t feel like a good fit for me, so I withdrew my application and, with little time for decisions and no alternatives in sight, took a job as a camp counselor in Maine.
 
-During the second week of camp I applied for a job in Colorado, confident of my ability to secure the position, only to be met by rejection. It then become clear to me that I had no sense of direction in my life. I had nearly accepted an offer to go to graduate school only because it seemed like the proper thing to do, and I applied to a random job in Colorado because I yearned for a sense of security. What was I truly willing to work for? What did I actually want to do with my life? How did I want to live? These questions haunted me, beckoning for resolution, and I had no answers.
+During the second week of camp I applied for a job in Colorado, confident of my ability to secure the position, only to be met by rejection. It then become clear to me that I had no sense of direction in my life. I had nearly accepted an offer to go to graduate school only because it seemed like the proper thing to do, and I had applied to a random job in Colorado because I yearned for a sense of security. 
+
+What was I truly willing to work for? What did I actually want to do with my life? How did I want to live? These questions haunted me, beckoning for a resolution, yet I had no answers.
 
 I turned to books for guidance––my usual coping strategy––and reread The Alchemist and When Breath Becomes Air. The Alchemist inspired a dreamy sense of possibility, while Breath instilled a demanding sense of urgency. But neither resolved my growing existential dilemma.
 
