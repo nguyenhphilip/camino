@@ -4,7 +4,7 @@ date: 2017-12-29T06:09:43-04:00
 draft: false
 categories: "Camino de Santiago"
 ---
-The Camino de Santiago is a network of pilgrimage routes that ultimately lead to the city of Santiago de Compostela in Northwestern Spain, where the Saint James is rumored to be buried. The most popular route is the Camino Frances. It begins at Saint-Jean-Pied-de-Port in Southern France, a small city located north of the Pyrenees, and totals about 500 miles across Spain to the city of Santiago de Compostela. Many walk the Camino for spiritual and religious reasons; I walked in search of myself.
+The Camino de Santiago is a network of pilgrimage routes that ultimately converge on the city of Santiago de Compostela in Northwestern Spain, where the Saint James is rumored to be buried. The most popular route is the Camino Frances. It begins at Saint-Jean-Pied-de-Port in Southern France, a small city located north of the Pyrenees, and totals about 500 miles across Spain to the city of Santiago de Compostela. Many walk the Camino for spiritual and religious reasons; I walked in search of myself.
 
 <br>
 
