@@ -120,7 +120,7 @@ Then I wrote them a letter expressing how I felt. I sent it minutes before board
 
 >If you ever meet the people I've had the fortune of developing relationships with, I think they would say I am an easygoing, thoughtful, caring, friendly, loyal, and loving person; that I would give them the shirt off of my back and the food on my table to make them feel loved and welcomed. I only have you two to thank for this. You have taught me to be a person of good character; you have given me the basic necessities for leading a fulfilled and meaningful life.
 
->Now, as I step out into the world and begin to draw my own map of it, I need your love more than ever. Because I will stumble and fall; I will get hurt and be heartbroken; I will be sad and frustrated and challenged beyond anything I have yet to face in my short life. But what's life worth anyways if I don't risk getting scratched and bruised along the way? That's just a part of growing up; that’s how I have grown up; that's how I want to grow up.
+>Now, as I step out into the world and begin to draw my own map of it, I need your love more than ever. Because I will stumble and fall; I will get hurt and be heartbroken; I will be sad and frustrated and challenged beyond anything I have yet to face in my one and short life. But what's life worth anyways if I don't risk getting scratched and bruised along the way? That's just a part of growing up; that’s how I have grown up; that's how I want to grow up.
 
 >If you're scared I won't continue my "education", don't worry: my education has never been limited to the confines of a classroom. Life itself is the greatest teacher, and I am taught something new everyday.
 
@@ -144,9 +144,9 @@ Heartbroken? Swelling with love? Check and check.
 
 <br>
 
-Are we ever truly ready for the future? I don’t think so. Life is uncertain. But that shouldn’t deter us from it. Whether or not we have fun in the process is a choice. Me? I have chosen to live.
+Are we ever truly ready for the future? I don’t think so. Life is too uncertain to always be preapred. But that shouldn’t deter us from it. Whether or not we have fun in the process is a choice. Me? I have chosen to live.
 
-I boarded the plane, unsure of what was to come. In the air, I took one last look at the Boston skyline. Clouds pressed against the horizon. A brilliant swath of pinkish-orange hues left the sky ablaze.
+I boarded the plane, unsure of what to come. In the air, I took one last look at the Boston skyline. The clouds pressed against the horizon. A brilliant swath of pinkish-orange hues left the sky ablaze.
 
 Behind me was home. Ahead, answers amid a foreign landscape.
 
