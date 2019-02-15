@@ -71,7 +71,7 @@ She told me, as we let one another out of our embrace, "Phil, it not a goodbye. 
 
 I woke up in Boston on the cold, wooden floor of a friend’s apartment. It was his first day of graduate school, and my last in the U.S.
 
-My only possessions were a 30L backpack, three sets of outfits, two books, a sleeping bag, my down jacket, a phone charger, toiletries, my boots, and a 12-pack of granola bars. My pack weighed no more than 10 lbs. The only thing left to prepare was my mind. I was jittery, nervous, and excited.
+My only possessions were a 30L backpack, three sets of outfits, two books, a sleeping bag, my down jacket, a phone charger, toiletries, my boots, and a 12-pack of granola bars. My pack weighed no more than 10 lbs. The only thing left to prepare was my mind. I was jittery and nervous, but also breathless and excited.
 
 I spent most of the morning in a coffee shop writing a letter to my friends:
 
@@ -89,7 +89,7 @@ I spent most of the morning in a coffee shop writing a letter to my friends:
 
 > Your friendly neighbor, Phil
 
-After posting the update, I thought of my parents and the argument we had a few days prior about my decision to walk the Camino. They believed I was being reckless, that I should’ve taken the opportunity at Boston University; that I, at the age of 24, should have my life figured out. I felt like a disappointment, a terrible son. But this was the path I wanted to walk, and I needed them to know that.
+After posting the update to Facebook, I thought of my parents and the argument we had a few days prior about my decision to walk the Camino. They believed I was being reckless, that I should’ve taken the opportunity at Boston University; that I, at the age of 24, should have my life figured out. I felt like a disappointment, a terrible son. But this was the path I wanted to walk, and I needed them to know that.
 
 I wrote a journal entry expressing my frustrations:
 
@@ -108,7 +108,7 @@ I wrote a journal entry expressing my frustrations:
 > As I learn how to forgive myself,<br>
 > And love you.
 
-Then I wrote them a letter expressing how I truly felt. I sent it minutes before boarding my plane to Europe:
+Then I wrote them a letter expressing how I felt. I sent it minutes before boarding my plane to Europe:
 
 >Dear Mom and Dad,
 
