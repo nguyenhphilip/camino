@@ -9,7 +9,7 @@ I arrived in Belgium late in the afternoon. The weather was exceptional: half-cl
 
 We caught up over coffee at a nearby restaurant. She talked about the difficulties of returning home, the growing tension between her and her parents, and the continued struggle of trying to find balance within her medical studies. I told her about the rest of my time on the Camino – the magical moments, the people I met, reaching Santiago, the decision not to go further, saying goodbye. It was surreal, the fact that I was in Belgium, staying with someone I had met on the Camino only weeks prior, the fact that I was with Marieke.
 
-I was still confused about my feelings toward her. I believed I was in love, but something about it just didn’t feel right. Was it because we had met on the Camino? Would it have been too good to be true? Or did I simply get the vibe that she didn’t love me back in the way I wanted her to? I was walking on a thin wire, unsure of when I would fall.
+I was still confused about my feelings toward her. I believed I was in love, but something about it just didn’t feel right. Was it because we had met on the Camino? Would it have been too good to be true? Or did I simply get the impression that she wouldn’t love me back in the way I loved her? I was walking on a thin wire, unsure of when I would fall.
 
 ## <center>...</center>
 
