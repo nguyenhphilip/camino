@@ -13,23 +13,23 @@ I was still confused about my feelings toward her. I believed I was in love, but
 
 ## <center>...</center>
 
-Later we went to a park and continued our conversation. The topic transitioned to love when she mentioned that Stepan had sent her a firey, passionate email admitting that he had fallen in love with her the moment they met. She was confused and a bit bewildered by the letter.
+Later we went to a park and continued our conversation. She mentioned that Stepan had sent her a firey, passionate email admitting that he had fallen in love with her the moment they met. She was confused and a bit bewildered by the letter.
 
-We often wondered why he was walking the Camino, a question which he always deflected or never gave a straight answer to. Maybe he wasn't ready to tell us why he was walking.
+We often wondered why he decided to walk the Camino, a question he always deflected or never gave a straight answer for.
 
-For awhile, we brainstormed ideas of what his motivations were for walking the Camino. Maybe he was a lost-soul searching for love; maybe he was just a normal guy struggling in life like everyone else. Maybe he did something unforgivable back in his home country. Whatever the case, the Camino had a way of connecting people despite the mysteries – or perhaps because of them. On the Camino, the past wasn't as important as the fact that we were there, walking together, sharing our common humanity, sharing a love of the road.
+For awhile, we brainstormed ideas of what his motivations were for walking the Camino. Maybe he was a lost-soul searching for love; maybe he was just a normal guy struggling in life like everyone else, seeking solace in a foreign land. Maybe he did something unforgivable back in his home country. Whatever the case, the Camino had a way of connecting people despite the mysteries, sometimes because of them. On the Camino, the past wasn't as important as the fact that we were simply there, walking together, sharing our common humanity, sharing a love of the road.
 
-Eventually, our conversation transpired toward the topic of us – me and her – and she mentioned something I will never forget: “You know, back on the Camino, I could have fallen in love with you. We became so close so fast, and it scared me a little. But the reason I didn’t was that it would have changed the reasons for why we were there.” It was strange to talk so openly about us like this, but I replied that I understood and had felt the same way. Though a different dialogue was playing in my head: Yes, love does change people, but that’s precisely what makes it so beautiful. Wasn’t the Camino about embracing all that comes your way? We dropped the topic and went to get dinner and ice cream.
+Eventually, our conversation transpired toward the topic of us – me and her – and she mentioned something I will never forget: “You know, back on the Camino, I could have fallen in love with you. We became so close so fast, and it scared me a little. But the reason I didn’t was that it would have changed the reasons for why we were there.” It was strange to talk so openly about us like this, but I replied that I understood and had felt the same way. Though a different dialogue was playing in my head: Yes, love does change people, but that’s precisely what makes it so beautiful. Wasn’t the Camino about embracing all that comes your way? 
 
 ## <center>...</center>
 
 We’re in her room, listening to Leonard Cohen. The question still lingers: do I love her? Does she love me? I won’t know until we talk about it. I won’t know until it's out in the open. I’m afraid. What if I jeopardize what we already have? No, we’re different. We can talk about anything and everything.
 
-My gut. A block of lead hanging from it. Something beating faster and faster. It wants to hide. To run. To fly. To breathe.
+My gut and a block of lead hanging from it. A heart beating faster and faster. It wants to hide. To run. To fly away. To breathe.
 
-I am brittle glass, a thin sheet of paper on the eve of an unanticipated storm. In the distance, a gust with the power to break trees, and men. A fire begins to kindle.
+I am brittle glass, a thin sheet of paper on the eve of some unanticipated storm. In the distance, a gust with the power to break trees, and men. 
 
-I turn toward Marieke. She looks straight at me. Through me. Inaudible words enter the air. Time collapses.
+A fire begins to kindle. I turn toward Marieke. She looks straight at me. Through me. Inaudible words enter the air. Time collapses.
 
 “I'm in love with you.”
 
@@ -67,7 +67,9 @@ A tiny piece of glass is shattering into a thousand tinier pieces. Time sweeps t
 
 ## <center>...</center>
 
-I feel numb the next day but put on a front. Marieke and I go to an African church service. We sing and listen to a genial man preach about love, forgiveness, redemption. I hear nothing. _What the hell do you know about love?_ We eat, drink, chat, and walk around. Things go as planned. Then we’re in the train station. A young, affectionate couple is sitting near us. They're utterly unavoidable, grossly enmeshed and atop one another. Time halts once again.
+Marieke and I go to an African church service the next day. I feel numb but put on a front. We sing and listen to a genial priest preach about love, forgiveness, redemption. I hear nothing. _What the hell do you know about love?_ We eat, drink, chat, walk around. Things go as planned. 
+
+Then we’re in the train station. A young, affectionate couple is sitting near us. They're utterly in love, grossly enmeshed and atop one another. Time halts once again.
 
 Anger. Sadness. Disappointment.
 
@@ -79,9 +81,9 @@ Am I rationalizing my pain? I don’t know. It doesn't matter. I have never felt
 
 I guess this is it then.
 
-We embrace one last time and say goodbye. I board the train and look at her through the opaque window. She looks back. I wave and turn inwards. A tear rolls down my cheek. I close my eyes.
+We embrace one last time and say our goodbyes. I board the train and look at her through the opaque window. She looks back. I wave and turn inwards. A tear begins to creep down my cheek. I close my eyes.
 
-The engine whirs to life, and slowly, slowly, I am taken by the arms of an unknown future. Somewhere else in the world, the sun is shining.
+The engine whirs to life, and slowly, slowly, I am taken by the arms of an unknown future. The distance between dream and reality begins to grow, and I am pulled against my will toward the latter. Somewhere else in the world, the sun is shining.
 
 ## <center>...</center>
 
