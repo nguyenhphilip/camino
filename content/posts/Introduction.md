@@ -144,7 +144,7 @@ Heartbroken? Swelling with love? Check and check.
 
 <br>
 
-Are we ever truly ready for the future? I don’t think so. Life is too uncertain to always be preapred. But that shouldn’t deter us from it. Whether or not we have fun in the process is a choice. Me? I have chosen to live.
+Are we ever truly ready for the future? I don’t think so. Life is too uncertain to always be prepared for it. But that shouldn’t deter us from living fully. Whether or not we have fun in the process is a choice. Me? I have chosen to dance.
 
 I boarded the plane, unsure of what to come. In the air, I took one last look at the Boston skyline. The clouds pressed against the horizon. A brilliant swath of pinkish-orange hues left the sky ablaze.
 

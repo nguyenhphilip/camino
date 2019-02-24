@@ -101,7 +101,7 @@ These are the letters Marieke and I wrote to each other after she was gone. They
 ## <center>...</center>
 
 ### October 1, 2017
->Galicia is beautiful. I feel so at home and energized being surrounded by the green vegetarian and high mountains. Wish you could feel the cool, mountainous air.
+>Galicia is beautiful. I feel so at home and energized being surrounded by the green vegetation and high mountains. Wish you could feel the cool, mountainous air.
 
 >A miracle: after 2 days of hip, ankle, and achilles pain, the Camino seems to have given me new legs. As I was walking, the pain suddenly disappeared. I was freaking out and telling everyone around me what had happened. They said I should be grateful.
 
